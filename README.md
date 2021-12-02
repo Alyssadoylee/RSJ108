@@ -1,4 +1,4 @@
-# RSJ108
+ALYSSA DOYLE'S GUIDE TO CONDUCTING AN INTERVIEW 
 An Instruction Challenge for JOUR 108  
 
 Reynolds School of Journalism  
